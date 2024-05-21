@@ -1,5 +1,5 @@
 
-<img src="https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/04/adobe_photoshop_hero_2.jpg" alt="tinyurl.com/4kd4tdc3" title="tinyurl.com/4kd4tdc3"" />
+<img src="https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/04/adobe_photoshop_hero_2.jpg" alt="PSD" title="PSD"" />
 <h2>License Key:</h2>
 <ul>
 <li>JQE07-C21Z3-JJHFO-8SWID-7FFFL</li>
